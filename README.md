@@ -1,0 +1,2 @@
+# Licenta
+Autoritate de certificare
